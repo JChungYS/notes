@@ -48,3 +48,12 @@ In short, the key matters tend to revolve around:
 
 If you want, I can turn this into a more practical “life design” plan tailored to that situation.
 
+
+
+Retire book --
+
+Do what you want to do as a job and not for money?
+
+Mind set -- grow mindset and not fix mindset
+
+The Almanack of Naval Ravikant
