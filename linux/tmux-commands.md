@@ -1,0 +1,1 @@
+tmux experience was rather frustrated, as one of the line with the 'graphic and display -- strange character for something that I found rathe annoying. I also need to figure out different thing include ssh remotely.
